@@ -68,7 +68,10 @@
 
 ✦If you want to talk to me sure you can, but if im alone, please dont disturb me much when im with my friends!
 
+✦Bear with me i have bad memory
+
 ✦If i am bothering you in any way just hide me i tend to be very arrogant on pony town especially in library
+
 
 ╭──〔❨✧✧❩〕──╮
 
