@@ -41,6 +41,8 @@
 
 ɖօ ռօȶ ɨռȶɛʀǟƈȶ
 
+❧Ponies with tits/abs. Fuck off pls.
+
 ❧People undr 13 or over 25
 
 ❧Weird Genshin/HSR Fans
