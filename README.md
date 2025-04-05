@@ -1,13 +1,13 @@
 ![GIF](https://i.gifer.com/2R9u.gif)
 ❧ɨռȶʀօ☙
 
-✦ My name is Leo or you can call me Rei!
+✦ My name is Leo!
 
 ✦ Main languages: English and Bosnian ☁︎
 
-✦ Main interests (currently): Neon Genesis Evangelion, Danganronpa, Project: Eden's Garden, Brawl Star, Honkai:Star Rail, Vocaloid ☁︎
+✦ Main interests (currently): Neon Genesis Evangelion, Danganronpa, Project: Eden's Garden, Brawl Star, Honkai:Star Rail, Vocaloid, Bungo Stray Dogs ☁︎
 
-✦Interests I can talk about but I am not really apart of: Cookie Run:Kingdom, Project Sekai, Genshin Impact, Dress to Impress, Eddsworld, Mouthwashing, Friday Night Funkin', Doki Doki Literature Club☁︎
+✦Interests I can talk about but I am not really apart of: Cookie Run:Kingdom, Project Sekai, Genshin Impact, Dress to Impress, Eddsworld, Mouthwashing, Friday Night Funkin', Doki Doki Literature Club, Reverse:1999, Hellsing ☁︎
 
 ♫-`♡´-♬ Music I listen to: 
 
